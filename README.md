@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @xXEnityXx
-- 👀 I’m interested in anime
+- 👀 I’m interested in anime and coding gamings
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me outlook.com email: Dancingneon@outlook.com
-- 😄 Pronouns: ... (End-it-tee)
+- 😄 Pronouns: ... (En-it-tee)
 - ⚡ Fun fact: ...I'm very artist.
 
 <!---
